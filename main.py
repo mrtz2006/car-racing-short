@@ -1,0 +1,3 @@
+Create an ultra-realistic cinematic car racing video featuring two powerful supercars racing at extreme speeds on a beautiful highway. Show aggressive overtaking, high-speed drifting around sharp corners, tire smoke, sparks, glowing headlights, and nitro boost effects. Use dynamic tracking shots, low-angle camera views, aerial drone shots, and slow-motion close-ups. Add realistic engine roars, tire screeches, and dramatic cinematic music. Beautiful sunset lighting, motion blur, 4K quality, ultra-detailed reflections, intense racing atmosphere, and a spectacular finish. Duration: 30 seconds. Aspect ratio: 16:9. Style: photorealistic Hollywood racing film.
+
+
